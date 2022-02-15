@@ -8,13 +8,13 @@
 
 ---
 
-### 2022云上春晚，在地如天。
+### 2022云上春晚，在地如天
 
 **[2022年三十：我的神州我的国](https://ipfs.slang.cx/ipfs/bafybeia5vlsr7guh5x7vhnypjsnfta2carvum5o5wgvbvrnpisx7ej7waa/%E5%B9%B4%E4%B8%89%E5%8D%81%EF%BC%9A%E4%BA%91%E4%B8%8A%E6%98%A5%E6%99%9A.mp4)**
 
 ---
 
-### 2022“新中华文明”贺岁论坛——从传统中华文明到新中华文明。
+### 2022“新中华文明”贺岁论坛
 
 **1. [2022年初一：中国字](https://ipfs.slang.cx/ipfs/bafybeifjiyftmlqhgm74jnfnxqmahjtasvcumwfskeer4fkd6fiduo5hey/%E5%B9%B4%E5%88%9D%E4%B8%80%EF%BC%9A%E4%B8%AD%E5%9B%BD%E5%AD%97.mp4)**
 <br>主题：从《圣经》解码神奇的中国文字。<br>讲员：红娘，中国文字专家。
