@@ -11,7 +11,7 @@
 2. [2022年初二：中国节](https://ipfs.slang.cx/ipfs/bafybeia4j552pzb32o4dqxlpuxqjycp4kigu6spfh4jtvfwartvs2mdube/%E5%B9%B4%E5%88%9D%E4%BA%8C%EF%BC%9A%E4%B8%AD%E5%9B%BD%E5%B9%B4.mp4)
 <br>讲员：张远来，学者与牧者。主题：逾越节与中国年：比较与启示
 3. [2022年初三：中国经](https://ipfs.slang.cx/ipfs/bafybeidmaqr7os5hx3ky6jg2vwfpzlxogmsa3ti5734til5ei6h6j5vr34/%E5%B9%B4%E5%88%9D%E4%B8%89%EF%BC%9A%E4%B8%AD%E5%9B%BD%E7%BB%8F.mp4)
-<p>讲员：王敬之，文化学者。主题：《圣经》与中国古经
+讲员：王敬之，文化学者。主题：《圣经》与中国古经
 4. [2022年初四：中国史](https://ipfs.slang.cx/ipfs/bafybeif4cvfokekbvui4wh5iqxxlzs7j5pmj67yn5jq43wrsiaxrix5snu/%E5%B9%B4%E5%88%9D%E5%9B%9B%EF%BC%9A%E4%B8%AD%E5%9B%BD%E5%8F%B2.mp4)
     讲员：杨鹏，文化学者。主题：中国传统思想中的普遍启示
 5. [2022年初五：中国道](https://ipfs.slang.cx/ipfs/bafybeidklsu4kb4snwgrqquajwk2augug2bjhheezamivsclf2zgm7dudy/%E5%B9%B4%E5%88%9D%E4%BA%94%EF%BC%9A%E4%B8%AD%E5%9B%BD%E9%81%93.mp4)
