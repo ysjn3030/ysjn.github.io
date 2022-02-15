@@ -7,9 +7,7 @@
 ### 2022“新中华文明”贺岁论坛——从传统中华文明到新中华文明。
 
 1. [2022年初一：中国字](https://ipfs.slang.cx/ipfs/bafybeifjiyftmlqhgm74jnfnxqmahjtasvcumwfskeer4fkd6fiduo5hey/%E5%B9%B4%E5%88%9D%E4%B8%80%EF%BC%9A%E4%B8%AD%E5%9B%BD%E5%AD%97.mp4)
-
 讲员：红娘，中国文字专家。主题：从《圣经》解码神奇的中国文字。
-
 2. [2022年初二：中国节](https://ipfs.slang.cx/ipfs/bafybeia4j552pzb32o4dqxlpuxqjycp4kigu6spfh4jtvfwartvs2mdube/%E5%B9%B4%E5%88%9D%E4%BA%8C%EF%BC%9A%E4%B8%AD%E5%9B%BD%E5%B9%B4.mp4)
 <br>
 讲员：张远来，学者与牧者。主题：逾越节与中国年：比较与启示
