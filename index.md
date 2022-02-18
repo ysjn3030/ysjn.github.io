@@ -7,6 +7,11 @@
 6. 一旦开始播放速度就会上去并稳定下来，所以请大家耐心等候
 
 ---
+### 徐州锁链女事件：基督徒的发声与祷告
+
+**[徐州锁链女事件：基督徒的发声与祷告](https://ipfs.slang.cx/ipfs/bafybeieuteprrdzosvex6avjdiieit4cbhvllouxv3szmggprf7vzj4xvy/%E9%93%81%E9%93%BE%E5%A5%B3.mp4)**
+
+---
 ### （耶稣）“那被锁正受苦的人是我”MV
 
 **[（耶稣）“那被锁正受苦的人是我”](https://ipfs.slang.cx/ipfs/bafybeigx6uxs5x5hk2re227fdspfflqzdcc4pp3cp76mgmyqkk72uvhjti/%E9%93%81%E9%94%81%E9%93%81%E9%94%81.mp4)**
