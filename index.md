@@ -10,6 +10,7 @@
 ### 徐州锁链女事件：基督徒的发声与祷告
 
 **[徐州锁链女事件：基督徒的发声与祷告](https://ipfs.slang.cx/ipfs/bafybeieuteprrdzosvex6avjdiieit4cbhvllouxv3szmggprf7vzj4xvy/%E9%93%81%E9%93%BE%E5%A5%B3.mp4)**
+**[徐州锁链女事件：基督徒的发声与祷告（音频版）](https://ipfs.slang.cx/ipfs/bafybeifyffa64j6y56jec5l26vzdg6aougws7zn3pdcjczvxdwe2lbnfse/0217GGGY.mp3)**
 
 ---
 ### 赵晓：为公义发声
