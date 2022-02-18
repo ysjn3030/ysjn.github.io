@@ -12,6 +12,11 @@
 **[徐州锁链女事件：基督徒的发声与祷告](https://ipfs.slang.cx/ipfs/bafybeieuteprrdzosvex6avjdiieit4cbhvllouxv3szmggprf7vzj4xvy/%E9%93%81%E9%93%BE%E5%A5%B3.mp4)**
 
 ---
+### 赵晓：为公义发声
+
+**[赵晓：为公义发声](https://ipfs.slang.cx/ipfs/bafybeiedvdqifdoskohvrn4bf4nbuxw7kcslh24lrwxd7jyaf6sp7ea3pa/%E8%B5%B5%E6%99%93%EF%BC%9A%E4%B8%BA%E5%85%AC%E4%B9%89%E5%8F%91%E5%A3%B0.mp4)**
+
+---
 ### （耶稣）“那被锁正受苦的人是我”MV
 
 **[（耶稣）“那被锁正受苦的人是我”](https://ipfs.slang.cx/ipfs/bafybeigx6uxs5x5hk2re227fdspfflqzdcc4pp3cp76mgmyqkk72uvhjti/%E9%93%81%E9%94%81%E9%93%81%E9%94%81.mp4)**
