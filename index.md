@@ -7,7 +7,7 @@
 
 ![](https://ysjn3030.github.io/ysjn.github.io/2.jpg)
 
-3. 如果在弹出选择菜单，再点其中的`“浏览器”`即可
+3. 如果再弹出选择菜单，点其中的`“浏览器”`即可
 
 ![](https://ysjn3030.github.io/ysjn.github.io/3.jpg)
 
