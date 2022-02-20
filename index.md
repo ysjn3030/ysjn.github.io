@@ -1,10 +1,16 @@
 # 使用说明
 1. 看到本页后点右上角的三个点，打开更多菜单
+
 ![](https://ysjn3030.github.io/ysjn.github.io/1.jpg)
+
 2. 在下方打开的菜单中选择啊`“在浏览器打开”`
+
 ![](https://ysjn3030.github.io/ysjn.github.io/2.jpg)
+
 3. 如果在弹出选择菜单，再点其中的`“浏览器”`即可
+
 ![](https://ysjn3030.github.io/ysjn.github.io/3.jpg)
+
 上面的操作是将本网页在浏览器中打开，已跳过微信的封锁，从而可以自由的点开视频观看。
 
 # 播放说明
