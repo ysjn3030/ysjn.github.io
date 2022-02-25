@@ -23,6 +23,17 @@
 6. 一旦开始播放速度就会上去并稳定下来，所以请大家耐心等候
 
 ---
+### 从小花梅迷雾到”怒江之光“
+
+**[从小花梅迷雾到“怒江之光”-1](https://ipfs.slang.cx/ipfs/bafybeifztugs7vhcat75wlzkklaqpez7ksiss4g2qypngbdepsg7xndevy/njzg/%E6%80%92%E6%B1%9F%E4%B9%8B%E5%85%891.mp4)**
+
+**[从小花梅迷雾到“怒江之光”-2](https://ipfs.slang.cx/ipfs/bafybeifztugs7vhcat75wlzkklaqpez7ksiss4g2qypngbdepsg7xndevy/njzg/%E6%80%92%E6%B1%9F%E4%B9%8B%E5%85%892.mp4)**
+
+**[从小花梅迷雾到“怒江之光”-3](https://ipfs.slang.cx/ipfs/bafybeid2dqwjrkvwkyzobzdaf3ew7uzwpn5ecp2hwdhzgbut32krzwsrua/%E6%80%92%E6%B1%9F%E4%B9%8B%E5%85%89/%E6%80%92%E6%B1%9F%E4%B9%8B%E5%85%89%E4%B8%AD.mp4)**
+
+**[从小花梅迷雾到“怒江之光”-4](https://ipfs.slang.cx/ipfs/bafybeid2dqwjrkvwkyzobzdaf3ew7uzwpn5ecp2hwdhzgbut32krzwsrua/%E6%80%92%E6%B1%9F%E4%B9%8B%E5%85%89/%E6%80%92%E6%B1%9F%E4%B9%8B%E5%85%89%E4%B8%8B.mp4)**
+
+---
 ### 徐州锁链女事件：基督徒的发声与祷告
 
 **[徐州锁链女事件：基督徒的发声与祷告](https://ipfs.slang.cx/ipfs/bafybeieuteprrdzosvex6avjdiieit4cbhvllouxv3szmggprf7vzj4xvy/%E9%93%81%E9%93%BE%E5%A5%B3.mp4)**
