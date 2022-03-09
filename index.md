@@ -26,6 +26,14 @@
 
 ---
 
+### 主日信息分享
+
+**[我是什么人？](https://ipfs.slang.cx/ipfs/bafybeicazzhfqn7eafn7svbqqczhmbw4x2lwkn3pow3sxh3c5bflu4df2a/%E6%96%B0%E5%BB%BA%E6%96%87%E4%BB%B6%E5%A4%B9/%E2%80%9C%E6%88%91%E6%98%AF%E4%BB%80%E4%B9%88%E4%BA%BA%EF%BC%9F%E2%80%9D.mp4)**
+
+**[不要惧怕](https://ipfs.slang.cx/ipfs/bafybeicazzhfqn7eafn7svbqqczhmbw4x2lwkn3pow3sxh3c5bflu4df2a/%E6%96%B0%E5%BB%BA%E6%96%87%E4%BB%B6%E5%A4%B9/%E2%80%9D%E4%B8%8D%E8%A6%81%E6%83%A7%E6%80%95%E2%80%9C%EF%BC%88%E4%B8%BB%E6%97%A5%E4%BF%A1%E6%81%AF%E5%88%86%E4%BA%AB%EF%BC%89.mp4)**
+
+---
+
 ### 倚天屠龙
 
 **[倚天屠龙-上](https://ipfs.slang.cx/ipfs/bafybeicr5riaql2yy265nxmas2n3j3y23buzay7e7tqejv6t273dksjms4/%E5%80%9A%E5%A4%A9%E5%B1%A0%E9%BE%99/%E5%80%9A%E5%A4%A9%E5%B1%A0%E9%BE%99-%E4%B8%8A.mp4)**
