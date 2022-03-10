@@ -26,6 +26,14 @@
 
 ---
 
+### 中国当代视角艺术中的终极关怀
+
+**[中国当代视角艺术中的终极关怀-上](https://ipfs.slang.cx/ipfs/bafybeienhfzn4lpt6kke56pydg7f7vl3nng6yqkgzfug46gkowytzomxni/%E4%B8%AD%E5%9B%BD%E5%BD%93%E4%BB%A3%E8%A7%86%E8%A7%92%E8%89%BA%E6%9C%AF%E4%B8%AD%E7%9A%84%E7%BB%88%E6%9E%81%E5%85%B3%E6%80%80/%E4%B8%AD%E5%9B%BD%E5%BD%93%E4%BB%A3%E8%A7%86%E8%A7%92%E8%89%BA%E6%9C%AF%E4%B8%AD%E7%9A%84%E7%BB%88%E6%9E%81%E5%85%B3%E6%80%80-%E4%B8%8A.mp4)**
+
+**[中国当代视角艺术中的终极关怀-下](https://ipfs.slang.cx/ipfs/bafybeienhfzn4lpt6kke56pydg7f7vl3nng6yqkgzfug46gkowytzomxni/%E4%B8%AD%E5%9B%BD%E5%BD%93%E4%BB%A3%E8%A7%86%E8%A7%92%E8%89%BA%E6%9C%AF%E4%B8%AD%E7%9A%84%E7%BB%88%E6%9E%81%E5%85%B3%E6%80%80/%E4%B8%AD%E5%9B%BD%E5%BD%93%E4%BB%A3%E8%A7%86%E8%A7%92%E8%89%BA%E6%9C%AF%E4%B8%AD%E7%9A%84%E7%BB%88%E6%9E%81%E5%85%B3%E6%80%80-%E4%B8%8B.mp4)**
+
+---
+
 ### 主日信息分享
 
 **[我是什么人？](https://ipfs.slang.cx/ipfs/bafybeicazzhfqn7eafn7svbqqczhmbw4x2lwkn3pow3sxh3c5bflu4df2a/%E6%96%B0%E5%BB%BA%E6%96%87%E4%BB%B6%E5%A4%B9/%E2%80%9C%E6%88%91%E6%98%AF%E4%BB%80%E4%B9%88%E4%BA%BA%EF%BC%9F%E2%80%9D.mp4)**
