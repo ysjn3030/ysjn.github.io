@@ -23,6 +23,12 @@
 
 ---
 
+### 赵晓问答
+
+**[关于三类偶像](https://ipfs.slang.cx/ipfs/bafybeief52cuts3yg7yxorip4e6sg2tmics66tnp4gbae3ijhswkcvofty/%E5%85%B3%E4%BA%8E%E4%B8%89%E7%B1%BB%E5%81%B6%E5%83%8F.mp4)**
+
+---
+
 ### 从战争经济学看俄乌大战
 
 **[从战争经济学看俄乌大战-上](https://ipfs.slang.cx/ipfs/bafybeib3igmtkod3kvnkfkhubk7sn2eskzk7gkdh3hdajhpto5x3mu5evi/%E4%BB%8E%E6%88%98%E4%BA%89%E7%BB%8F%E6%B5%8E%E5%AD%A6%E7%9C%8B%E4%BF%84%E4%B9%8C%E5%A4%A7%E6%88%98/%E4%BB%8E%E6%88%98%E4%BA%89%E7%BB%8F%E6%B5%8E%E5%AD%A6%E7%9C%8B%E4%BF%84%E4%B9%8C%E5%A4%A7%E6%88%98-1.mp4)**
